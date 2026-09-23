@@ -1,1 +1,1 @@
-# srishtlabs.github.io
+# srisht.github.io
